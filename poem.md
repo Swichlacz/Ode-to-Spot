@@ -1,4 +1,5 @@
 #Ode to Spot
+:cat: :cat: :cat:
 
 **Felix Catus**, is your taxonomic nomenclature,  
 an endothermic quadruped carnivorous by nature?  
@@ -21,3 +22,6 @@ And though you are not sentient, Spot, and do not comprehend,
 **I nonetheless consider you a _true and valued friend_.**
 
 > **Commander Data,** _United Federation of Planets_
+
+<br>
+[Star Trek Reddit](https://www.reddit.com/r/startrek/comments/4gwizf/ode_to_spot_a_poem_by_data/)
