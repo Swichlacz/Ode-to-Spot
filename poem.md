@@ -24,4 +24,4 @@ And though you are not sentient, Spot, and do not comprehend,
 > **Commander Data,** _United Federation of Planets_
 
 <br>
-[Star Trek Reddit](https://www.reddit.com/r/startrek/comments/4gwizf/ode_to_spot_a_poem_by_data/)
+[Star Trek Subreddit](https://www.reddit.com/r/startrek/comments/4gwizf/ode_to_spot_a_poem_by_data/)
